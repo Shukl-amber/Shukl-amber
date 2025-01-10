@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Shukl-amber
+- 👀 I’m interested in Web 3 & DSA
+- 🌱 I’m currently learning DSA,C++,JS
+- 💞️ I’m looking to collaborate on Projects
+- 📫 How to reach me -> Shukl_embr over on IG.
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I have owned over 16 cats :)
